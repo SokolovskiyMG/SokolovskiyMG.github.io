@@ -1,1 +1,0 @@
-# SokolovskiyMG.github.io
